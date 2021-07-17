@@ -1,1 +1,0 @@
-# gama-academy-desafio-hiring-coders-ecommerce
